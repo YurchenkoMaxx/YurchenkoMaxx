@@ -68,7 +68,7 @@ English – Intermediate (B1–B2)
 Ukrainian – Native  
 
 ---
-🎯 Career Goal
+## 🎯 Career Goal
 
 Actively looking for:
 
